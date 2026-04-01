@@ -1,1 +1,1 @@
-Hello My name is Mandyson. Thnk you for visiting my repository, navigate through my files and videos for what I've been to. Please reach out to my email mandysonbernard@gmail.com for any questions, feedback or interests.
+Hello My name is Mandyson. Thank you for visiting my repository, navigate through my files and videos for what I've been to. Please reach out to my email mandysonbernard@gmail.com for any questions, feedback or interests.
